@@ -319,3 +319,66 @@ What’s the hardest interview question you’ve ever been asked?
 
 
 https://www.linkedin.com/posts/projectmanagementinformation_ive-hired-100-top-performers-and-here-activity-7346855299099557889-4nlu?utm_source=share&utm_medium=member_desktop&rcm=ACoAAARSzbgBGEbWHnTkxyPnkFaeZcnK-pW0lqg
+
+**************
+
+Handling conflicts within team members is a critical leadership skill — and one that separates good managers from great leaders. Here’s a practical and effective approach:
+
+🔄 1. Don't Avoid It. Address It Early.
+Conflict ignored is conflict multiplied.
+
+Don’t hope it will “go away.”
+
+The longer you wait, the more resentment builds.
+
+Address issues early — when it's still a spark, not a fire.
+
+👂 2. Listen to Both Sides — Without Bias
+Schedule 1:1s privately with the team members involved.
+
+Let them speak openly without interruption.
+
+Ask neutral questions: “What happened from your perspective?”
+
+Your job here is to understand, not to fix immediately.
+
+🧠 3. Focus on Facts, Not Feelings
+Stick to what happened, not how they “felt” about each other.
+
+Don’t get trapped in personality-based debates.
+
+Help them separate the person from the problem.
+
+🤝 4. Bring Them Together for a Solution
+Once you’ve heard both sides, bring them in together.
+
+Set ground rules: respect, no interruptions, focus on resolution.
+
+Ask: “What can we do differently going forward?”
+
+⚖️ 5. Be a Coach, Not a Judge
+Avoid picking winners or losers.
+
+Encourage collaborative ownership of the solution.
+
+Offer feedback if any behavior violated team norms.
+
+📜 6. Set Clear Expectations
+Re-align the team on values, roles, and goals.
+
+If needed, document agreements to avoid repeated issues.
+
+Conflict resolution without accountability leads to recurrence.
+
+💬 7. Follow Up
+Check in after a week or two.
+
+Ensure the emotional residue is cleared.
+
+Celebrate improvement. Reinforce the behavior you want to see.
+
+✅ Summary:
+Handle conflict with empathy, neutrality, and structure.
+Your goal is not just to “settle the issue” — it’s to restore trust, team spirit, and long-term collaboration.
+
+https://www.linkedin.com/posts/ranjit-appukutti-b22350110_leadership-teammanagement-peopleskills-activity-7346143348857937920-2LrW?utm_source=share&utm_medium=member_desktop&rcm=ACoAAARSzbgBGEbWHnTkxyPnkFaeZcnK-pW0lqg
