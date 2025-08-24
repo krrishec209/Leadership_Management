@@ -67,3 +67,36 @@ Repost
 https://www.linkedin.com/posts/ericpartaker_most-people-chase-success-leaders-create-ugcPost-7349701759239368705-NBAd?utm_source=share&utm_medium=member_desktop&rcm=ACoAAARSzbgBGEbWHnTkxyPnkFaeZcnK-pW0lqg
 
 <img width="747" height="535" alt="image" src="https://github.com/user-attachments/assets/9052346a-ca85-4126-9b85-25f480a5d5b3" />
+
+
+********
+
+Just a gentle weekend reminder that:
+You don’t need to have coded since you were 12.
+You don’t need a photographic memory for syntax or algorithms.
+You don’t need a “top college” tag to be a great software engineer.
+You don’t need to be a math olympiad or IIT topper to break into big tech.
+You don’t need to “think like a genius” or speak in technical jargon all day.
+
+What do you need?
+→ Grit when things don’t work
+→ Curiosity when you hit a wall
+→ Consistency when progress is slow
+→ Honesty about what you know and what you don’t
+→ Willingness to look dumb, try, and get better
+
+Nobody is born knowing how to debug code or architect systems at scale.
+Skills get built. Confidence grows. Intelligence compounds.
+
+If you show up with the right attitude and put in the work,
+You’ll become someone people thought was “naturally gifted.”
+
+Most of what looks like “talent” is just stubborn effort over time.
+Don’t count yourself out because you didn’t start with all the labels or trophies.
+
+You can become the engineer you want to be.
+Keep showing up for yourself. The rest will follow.
+
+https://www.linkedin.com/posts/rajya-vardhan_just-a-gentle-weekend-reminder-that-you-activity-7364644614680530947-1Rac?utm_source=share&utm_medium=member_desktop&rcm=ACoAAARSzbgBGEbWHnTkxyPnkFaeZcnK-pW0lqg
+
+
